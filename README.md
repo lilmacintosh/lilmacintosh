@@ -26,6 +26,22 @@ First Impressions of Earth - The Strokes
 Absolution - Muse
 Revolver - The Beatles
 
+15 of my favorite TV shows (in no particular order)
+Regular Show
+Dr. Katz, Professional Therapist
+Agatha Christie's Poirot
+Cowboy Bebop
+The Armstrong and Miller Show
+Breaking Bad
+Aqua Teen Hunger Force
+The Amazing World of Gumball
+Inspector Morse
+Space Ghost Coast to Coast
+Great Teacher Onizuka
+Inuyasha
+Father Brown
+Mission Hill
+
 
 I like riding my bicycle and doodling stuff
 
@@ -38,3 +54,11 @@ Fun fact: My favorite color is blue
 
 My favorite class in high school is Theatre
 Yeah I'm a Theatre kid
+
+List of other favorites:
+Color: Blue
+Number: 6
+Ice Cream flavor: Strawberry
+Book: The Hate U Give
+Holiday: Christmas
+Video Game: Sonic the Hedgehog
