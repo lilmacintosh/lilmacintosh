@@ -1,31 +1,71 @@
 ### Hi there 👋
 
 My name is Dylan
-he/him
-Sega Dreamcast = best console ever
+- he/him
+- Sega Dreamcast = best console ever
 
 20 of my favorite albums (in no particular order)
-Origin of Symmetry - Muse
-Abbey Road - The Beatles
-Hail to the Thief - Radiohead
-A Rush of Blood to the Head - Coldplay
-The Battle of Los Angeles - Rage Against The Machine
-Stories from the City, Stories from the Sea - PJ Harvey
-Fashion Nugget - Cake
-Francis Trouble - Albert Hammond Jr.
-OK Computer - Radiohead
-...Like Clockwork - Queens of the Stone Age
-Will of the People - Muse
-Amnesiac - Radiohead
-Weezer (Blue Album) - Weezer
-Weezer (Green Album) - Weezer
-One by One - Foo Fighters
-Rubber Soul - The Beatles
-Riot! - Paramore
-First Impressions of Earth - The Strokes
-Absolution - Muse
-Revolver - The Beatles
+- Origin of Symmetry - Muse
+- Abbey Road - The Beatles
+- Hail to the Thief - Radiohead
+- A Rush of Blood to the Head - Coldplay
+- The Battle of Los Angeles - Rage Against The Machine
+- Stories from the City, Stories from the Sea - PJ Harvey
+- Fashion Nugget - Cake
+- Francis Trouble - Albert Hammond Jr.
+- OK Computer - Radiohead
+- ...Like Clockwork - Queens of the Stone Age
+- Will of the People - Muse
+- Amnesiac - Radiohead
+- Weezer (Blue Album) - Weezer
+- Weezer (Green Album) - Weezer
+- One by One - Foo Fighters
+- Rubber Soul - The Beatles
+- Riot! - Paramore
+- First Impressions of Earth - The Strokes
+- Absolution - Muse
+- Revolver - The Beatles
 
+20 of my favorite TV shows (in no particular order)
+- Regular Show
+- Dr. Katz, Professional Therapist
+- Agatha Christie's Poirot
+- Cowboy Bebop
+- The Armstrong and Miller Show
+- Breaking Bad
+- Aqua Teen Hunger Force
+- The Amazing World of Gumball
+- Inspector Morse
+- Space Ghost Coast to Coast
+- Great Teacher Onizuka
+- Inuyasha
+- Father Brown
+- Mission Hill
+- Witch Hunter Robin
+- Endeavour
+- Midsomer Murders
+- Harvey Birdman, Attorney at Law
+- Smiling Friends
+- Saber Marionette J
+
+10 of my favorite movies (in no particular order)
+- Yellow Submarine
+- Ashens and the Quest for the Game Child
+- Bean
+- A Hard Day's Night
+- Coming to America
+- The Super Mario Bros. Movie (2023)
+- Baz Luhrmann's Romeo + Juliet
+- Batman: Mask of the Phantasm
+- Aladdin
+- The Truman Show
+
+5 of my favorite video games (in no particular order)
+- Pokemon
+- Super Mario
+- Sonic the Hedgehog
+- World of Illusion starring Mickey Mouse and Donald Duck
+- NBA Jam
 
 I like riding my bicycle and doodling stuff
 
@@ -38,3 +78,12 @@ Fun fact: My favorite color is blue
 
 My favorite class in high school is Theatre
 Yeah I'm a Theatre kid
+
+List of other favorites:
+Color: Blue
+Number: 6
+Ice Cream flavor: Strawberry
+Book: The Hate U Give
+Holiday: Christmas
+Video Game: Sonic the Hedgehog
+Cooke: Sugar
