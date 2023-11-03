@@ -41,6 +41,12 @@ Great Teacher Onizuka
 Inuyasha
 Father Brown
 Mission Hill
+Witch Hunter Robin
+Endeavour
+Midsomer Murders
+Harvey Birdman, Attorney at Law
+Smiling Friends
+Saber Marionette J
 
 
 I like riding my bicycle and doodling stuff
